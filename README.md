@@ -1,3 +1,6 @@
+## Support 
+Email: johnsenkw@gmail.com
+
 ## Knut Willy Johnsen Terms of Service
 
 ### 1\. Terms
